@@ -1,0 +1,1 @@
+# Calculadora-Regra-dos-5-de-Lipinski
